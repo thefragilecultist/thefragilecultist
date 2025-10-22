@@ -1,3 +1,3 @@
-![hi](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQx9ZSGAwtIP1-PGM-QAs4XnBGvruAeNVS4Fk3COHDWhQ&s=10)
+![hi](https://cdn.discordapp.com/attachments/1430554623634178061/1430554684711764039/IMG_0338.png?ex=68fa335f&is=68f8e1df&hm=ef9d80524b4552c770bb9e9c162254d36e413865a71f48cc4c7714f3b0d97288&)
 
-̶I̶’̶m̶ ̶s̶̶o̶̶r̶̶r̶̶y̶… ̶A̶̶z̶̶u̶̶r̶̶e̶…
+
