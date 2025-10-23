@@ -1,4 +1,4 @@
-![hi](https://cdn.discordapp.com/attachments/1430554623634178061/1430554684711764039/IMG_0338.png?ex=68fa335f&is=68f8e1df&hm=ef9d80524b4552c770bb9e9c162254d36e413865a71f48cc4c7714f3b0d97288&)
+![hi](https://cdn.discordapp.com/attachments/1430554623634178061/1430902841400234066/IMG_0344.png?ex=68fb779e&is=68fa261e&hm=9a6c5e8c5ccab52cdc7b00892744368ee4edc427fb5acfab447bc313a67f1f82&)
 
   ▶︎ •၊၊||၊|။||||။‌‌‌‌‌၊|• 0:10                    
 
